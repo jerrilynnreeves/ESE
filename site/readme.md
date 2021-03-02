@@ -1,0 +1,2 @@
+#Information
+Copyrighted resources removed.
